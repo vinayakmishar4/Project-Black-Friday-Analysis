@@ -38,4 +38,4 @@ For any inquiries, feel free to contact:
 
 - **Name**: Vinayak Mishra
 - **Email**: vmaugust24@gmail.com
-- **LinkedIn**: [Your LinkedIn Profile](https://linkedin.com/in/yourprofile)
+- **LinkedIn**: [Your LinkedIn Profile](https://www.linkedin.com/in/vinayak-mishra-93003b1b3?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
